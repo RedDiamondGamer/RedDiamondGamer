@@ -1,9 +1,9 @@
 - Howdy, I’m @RedDiamondGamer
 - I enjoy SCP and Hermitcraft
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- [My Carrd!](https://reddiamondgamer.carrd.co/)
+- Pronouns: He/it
+- Always feel free to whisper me, I'm off-tab a lot on Pony Town!
+- (Also my carrd is bare bones and may upgrade after a bit)
 
 <!---
 RedDiamondGamer/RedDiamondGamer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
